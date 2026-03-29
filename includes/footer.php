@@ -1,0 +1,1 @@
+<footer>copyright © 2026 E — ASPIRASI SEKOLAH · Nurul Qamari</footer>
